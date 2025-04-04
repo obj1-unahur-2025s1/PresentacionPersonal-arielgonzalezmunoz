@@ -12,9 +12,12 @@ Espero, poder seguir descrubriendo y desarrollando habilidades que esta carrera 
 
 A futuro espero poder terminar la carrera y continuar mi formacion y sino cambian mis planes poder desempeñarme como nomada digital, lo cual me permitiria, poder trabajar de lo que me gusta y al mismo tiempo viajar a diferentes paises.
 
+Para cerrar, quiero contar que tengo 4 hermanos varones, con los cuales comparto esta misma pasion por los videjuegos, y en parte puedo agradecer a ellos que me encuentro explorando esta nueva y emocionante etapa.
+
 
 ## Más Información
-- Me gustan mucho los gatos, actualmente tengo 5 
+- Me gustan mucho los gatos, actualmente tengo 5.
+- Siempre fui una persona de tener muchas mascotas, ademas de gatos he tenido perros, hamsters, tortugas, loros, otros pajaros varios, como palomas y gallinas, peces de diferentes especies y una iguana.
 - Vivo en Mariano Acosta, partido de Merlo, lo cual dificulta un poco el translado hasta la universidada en ocaciones.
 - Juego videojuegos desde muy chico, mi primera consola fue la Family y uno de mis juegos favoritos es Jet Set Radio para la Sega Dreamcast.
-- Tengo 4 hermanos varones, compartimos la misma pasion por los videojuegos, y en parte puedo agradecer a ellos que me encuentro explorando esta nueva etapa.
+- Me gusta el anime, y soy un aficionado coleccionador de mangas y de comics, mi coleccion es chica pero de a poco va creciendo.
